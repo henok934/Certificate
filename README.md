@@ -1,0 +1,1 @@
+As a full stack software engineer, I have invested significant time and effort in expanding my knowledge and skills across various domains. This certificate directory serves as a comprehensive record of my professional development journey, showcasing the certifications and credentials I have earned.
